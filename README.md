@@ -1,1 +1,0 @@
-Documentacion de razonamiento cuantitativo
